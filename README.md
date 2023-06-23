@@ -10,7 +10,7 @@
 - 👯 I’m looking to collaborate on the concept "make the earth better place to leave"
 - 🤔 I’m looking for help with developing my website
 - 💬 Ask me about webdevelopment, arduino
-- 📫 How to reach me: [Twitter](https://twitter.com/sipayi), [LinkedIn](https://www.linkedin.com/in/sipayi/)
+- 📫 How to reach me: [Twitter](https://twitter.com/Sai20994019), [LinkedIn](https://www.linkedin.com/in/sipayi/)
 - 😄 Pronouns: saik, 
 - ⚡ Fun fact: I cook biryani very well😋
 - 
